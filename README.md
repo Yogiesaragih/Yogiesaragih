@@ -1,4 +1,8 @@
 
+![coollogo_com-60942222](https://github.com/Yogiesaragih/Yogiesaragih/assets/89885893/a82780fe-9a06-462b-897e-0fb120819332)
+
+
+
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/yogie.w.sumbayak18) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/yogiee_saragihh) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@vrensgame) 
 
